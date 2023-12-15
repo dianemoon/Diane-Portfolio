@@ -6,6 +6,6 @@ If you've left your pet at home and miss its cute face, have it on your desktop 
 
 Shop for treats, toys, and accessories. Give them to your pet. 
 
-### Get your work done
+### Every day at work, get credits for your pet.
 
 Set the pomodoro timer, and your pet will be proud!
